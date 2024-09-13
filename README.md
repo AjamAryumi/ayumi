@@ -1,0 +1,2 @@
+# ayumi
+tugaas tik ulangan
